@@ -1,0 +1,1 @@
+Aloha Hola Bonjour Hello Konichiwa Guten tag Allo
